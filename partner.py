@@ -1,1 +1,1 @@
-sup! AAG LAGA DENGE!
+sup! AAG LAGA DENGE! : what sup? Please use proper english
